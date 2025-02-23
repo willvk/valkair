@@ -6,6 +6,4 @@ The [[Norse]] which serve under [[Jarl Ivar]], known by his enemies as "the terr
 
 The [[Ork]] warbands serve under [[Orgrim Doomhammer]] and continue to lust for blood. They are currently satiated with their lot, but Orks have never been known to play nicely with others for long. This treaty with the petulant humans grows tiresome. The humans are weak and far too merciful, though they outnumber us two to one, none can stand against the wrath of the Horde. Why were any of the pointy-ears allowed to live? Why do we feed our enemies? No this tenuous treaty cannot last and when it finally falls, Doomhammer will be ready to be holding the hill from the skulls of his foes once more.
 
-
-
 [[The Chosen]],
