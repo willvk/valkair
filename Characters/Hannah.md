@@ -16,4 +16,4 @@ The empire of [[Dres elas]] was a bastion of the high elves. Superior to all cit
 
 ## Recent events
 
-- Freed from her imprisonment by the [[Elves]] in the Fall of [[Dres Elas]] by the party [[1.1.0 - A city overrun]]
+- Freed from her imprisonment by the [[Elves]] in the Fall of [[Dres Elas]] by the party [[1.2.0 - A city overrun]]

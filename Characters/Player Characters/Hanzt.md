@@ -6,8 +6,6 @@ Justified and encouraged by other Guild members, it took him a long time to ques
 
 Usually he'd interrogate scumbags and lowlifes, but after taking orders from one of the Guild's Made-Men, he found himself face-to-face with a truly innocent husband, wife, and newborn. You don't say no to The Guild, so left with no choice he turned on his once-allies and freed the young family. 
 
-(Maybe its a family in [[Mongeet]] or maybe they fled into the Middens, maybe nearer [[Yorvik]] )
-
 Now forever on the run from The Guild, he can only attempt to atone for his past life, and prove to himself that there is good within himself that is worth redemption. To maintain anonymity, the braid and beard that had once made him notorious had to go.
 
 ![[Guildhantz.png]]
